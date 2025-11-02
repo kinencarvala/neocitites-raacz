@@ -31,7 +31,7 @@ My hands know some of the dances from the constant fixation on them. I can tell 
 
 I have spent time collecting all of them into playlists. And I have a [master playlist](https://youtube.com/playlist?list=PLejmSMwvYi4axHrrSB30PCD0KIEvvqYZk) that contains all of them.
  
-I collect them like my baba used to collect spoons from the places she couldn't set her feet on. Her spoon collection is still hanging on my wall. And I hope these playlists will be useful to someone eventually. 
+I collect them like my <dfn title="grandmother">baba</dfn> used to collect spoons from the places she couldn't set her feet on. Her spoon collection is still hanging on my wall. And I hope these playlists will be useful to someone eventually. 
 
 <hr>
 
