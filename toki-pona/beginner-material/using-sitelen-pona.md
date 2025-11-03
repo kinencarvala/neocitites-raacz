@@ -36,7 +36,7 @@ sina pana kepeken sitelen Lasina la
 
 ### 𐑞 𐑮𐑨𐑖𐑩𐑯𐑨𐑤
   
-𐑞𐑱𐑮 𐑸 𐑤𐑭𐑑𐑕 𐑝 ·𐑮𐑰𐑟𐑩𐑯𐑟 𐑑 𐑛𐑵 𐑞𐑦𐑕.  
+𐑞𐑱𐑮 𐑸 𐑤𐑭𐑑𐑕 𐑝 𐑮𐑰𐑟𐑩𐑯𐑟 𐑑 𐑛𐑵 𐑞𐑦𐑕.  
 
 𐑓𐑸 𐑢𐑩𐑯 𐑧𐑜𐑟𐑨𐑥𐑐𐑩𐑤, 𐑦𐑯 𐑕𐑩𐑥 𐑚𐑮𐑬𐑟𐑼𐑟, <span class="sp" lang="tok">nasin nanpa</span> 𐑒𐑨𐑮𐑦𐑒𐑑𐑼𐑟 (𐑨𐑟 𐑢𐑧𐑤 𐑨𐑟 𐑧𐑯𐑰 <span class="sp" lang="tok">sitelen pona</span> 𐑒𐑨𐑮𐑦𐑒𐑑𐑼𐑟 𐑮𐑧𐑯𐑛𐑼𐑛 𐑓𐑼𐑥 𐑱 𐑓𐑭𐑯𐑑 𐑞𐑨𐑑 𐑣𐑨𐑟 𐑤𐑦𐑜𐑩𐑗𐑼𐑟 𐑭𐑯) 𐑸 𐑒𐑩𐑑 𐑭𐑓 𐑨𐑑 𐑑𐑧𐑒𐑕𐑑 𐑮𐑨𐑐𐑦𐑙. 
 
